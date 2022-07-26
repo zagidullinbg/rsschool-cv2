@@ -1,6 +1,9 @@
 ## Булат Загидуллин
 
-### Мои контакты и соц.сети : [Telegram|https://t.me/telegabulata][Вконтакте|https://vk.com/vkbulata][Instagram|https://instagram.com/instabulata]
+### Мои контакты и соц.сети : 
+[Telegram|https://t.me/telegabulata]
+[Вконтакте|https://vk.com/vkbulata]
+[Instagram|https://instagram.com/instabulata]
 
 > Цитаты дня: Тяжелый труд и самоотдача
 
